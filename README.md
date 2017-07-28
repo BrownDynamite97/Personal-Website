@@ -1,7 +1,4 @@
-### Aasif is learning to make a dope website
-
-YOOOOOOOOO I JUST BOUGHT THIS AND ITS GONNA BE AWESOME
-```markdown
+### THIS IS AASIF CHARANIA LEARNING HOW TO MAKE A NEW WEBSITE
 
 
 # MORE ABOUT AC
