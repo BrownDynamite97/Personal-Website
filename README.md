@@ -1,8 +1,4 @@
-### THIS IS AASIF CHARANIA LEARNING HOW TO MAKE A NEW WEBSITE
-
-
-# MORE ABOUT AC
-## HOW TO BE AS AWESOME AS AC
-### I CANT THINK OF ANYTHING BUT ITS GONNA BE AN YUGGGGG PAGE 
+### Until This Website is Up and Running
+# Enjoy a Real Life Picture of Me
 <img src="http://az1.faceinhole.com/creations/17/7/28/279287e171b17271f200.jpg">
 
